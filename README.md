@@ -1,6 +1,7 @@
 # lynix-rex
 
 TO ALL THE RETARDS THAT THINK ITS A VIRUS
+
 download this if u want u can read ALL of the code;
 put it in a virus scanner idk but just read the code its literally right there
 
