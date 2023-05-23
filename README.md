@@ -1,11 +1,5 @@
 # lynix-rex
 
-TO ALL THE RETARDS THAT THINK ITS A VIRUS
-
-download this if u want u can read ALL of the code;
-put it in a virus scanner idk but just read the code its literally right there
-
-
 Writing an expose document on rex sniper and TAP (Time and places)
 
 devin.#1234
@@ -24,3 +18,10 @@ Not only is it just immoral that he removed any credit from the developer and co
 How can I help: 
 
 spread this flood the rbx space chat with whatever post this repo if u want but stop paying for rex please hes a leech and he doesnt deserve your money
+
+
+
+### TO ALL THE RETARDS THAT THINK ITS A VIRUS
+
+download this if u want u can read ALL of the code;
+put it in a virus scanner idk but just read the code its literally right there
