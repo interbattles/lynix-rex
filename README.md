@@ -1,5 +1,9 @@
 # lynix-rex
 
+https://discord.gg/Srzf7vufnt
+https://discord.gg/Srzf7vufnt
+https://discord.gg/Srzf7vufnt
+
 Writing an expose document on rex sniper and TAP (Time and places)
 
 devin.#1234
